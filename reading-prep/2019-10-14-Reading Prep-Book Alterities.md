@@ -1,0 +1,9 @@
+# Reading Prep: Book Alterities
+
+#### Madeline Hulse
+
+## Questions or Observations
+
+1. I've seen a news article on The Future Library before and remember thinking it was a cool idea while also being extremely annoyed, and I feel the same after reading about it again. I likely would've never read the books that authors are submitting for the Library anyway, but I feel irked and shorted by my inability to access them regardless. I tend to evaluate the value of books based on their contents and the interactions they provide to readers, and I believe the books sealed away will become valuable upon their release, but since they can't be read for the next 100 years, I feel like they don't provide any value, so what is the point of putting them away? TLDR: What makes a book valuable and is The Future Library really a useful/noble project? 
+2. An overall theme I've noticed is the desire of many people to reduce or eliminate the ephemerality of books, either by encoding a poem into a protein, repurposing old books, or moving to digital mediums. Does altering the book in this way have any effect on the content or value of the book? 
+3. The idea of altered books used to always bother me; I thought they were defacing and apathetic towards the author. I don't feel that way as much after this class, and I actually think it's cool that a lot of artists attempt to bring new life into old books that are going to be neglected or trashed anyways. It reminds me of when artists paint over old canvases to create new paintings, which I've always felt slightly uncomfortable with, because it just seems wrong to destroy something that someone else created. So I guess I have a question of when is it, if ever, okay to repurpose someone else's work if it must be destroyed in the process?
