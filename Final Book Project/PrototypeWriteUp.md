@@ -1,6 +1,6 @@
 #Project Prototype:
 
-Image uploaded separately because I couldn't figure out how to get them in here.
+Image uploaded separately because I couldn't figure out how to get it in here.
 
 Outline:
 
